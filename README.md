@@ -1,2 +1,0 @@
-# Renalyn-Jalipa
-# umayyyy
